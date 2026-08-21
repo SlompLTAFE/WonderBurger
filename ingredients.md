@@ -1,1 +1,0 @@
-# Chiken - By ParaDolia!
